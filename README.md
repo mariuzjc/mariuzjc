@@ -7,5 +7,3 @@ Hi! I'm Celeste, and I enjoy the art of coding!
 - 📫 How to reach me: Preferably on LinkedIn
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I have a tomato plant. 🍅
-
-(This section will be improved in the near future)
